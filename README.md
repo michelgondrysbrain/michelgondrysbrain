@@ -1,5 +1,5 @@
 - 👋 hi, i’m @michelgondrysbrain
-- 👀 i’m interested in physics, movies n doin nothin
+- 👀 i’m interested in trying to survive (not really)
 - 🌱 i’m currently learning how to live this life
 - 📫 how to reach me: same @ on telegram
 - 😄 pronouns: she/her
